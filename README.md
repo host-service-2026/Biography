@@ -26,6 +26,7 @@ In 2024 Dooney developed the concept and digital strategy for _everythingthe.com
 
 At the end of the 2026 financial year, Hazel Dooney formally concluded her career as an artist and essayist and finalised all business operations in alignment with Australian Taxation Office requirements.
 
+
 Footnotes:
 
 [1] McGregor, Ken; Ho, Hari; Crawford, Ashley. _William Creek & Beyond: Australian artists explore the outback. Jason Benjamin, Hazel Dooney, Robert Jacks, David Larwill, Jeff Makin, John Olsen, Rodney Pople, Mark Schaller, Andrew Sibley, Tim Storrier_. Craftsman House Imprint, 28 November 2002. ISBN-13: 978-1877004261 
