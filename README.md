@@ -24,7 +24,7 @@ In 2023 Dooney’s essay ‘The future of art fraud’ was published by _Griffit
 
 In 2024 Dooney developed the concept and digital strategy for _everythingthe.com_, a direct-subscription publication for Australia's leading art critic, John McDonald.[16] 
 
-At the end of the 2026 financial year, Hazel Dooney formally concluded her career as an artist and essayist and finalised all business operations in alignment with Australian Taxation Office requirements.
+At the end of the 2026 financial year, Hazel Dooney formally concluded her career as an artist and essayist, deleted all social media accounts and finalised all business operations in alignment with Australian Taxation Office requirements.
 
 
 Footnotes:
