@@ -26,6 +26,7 @@ In 2024 Dooney developed the concept and digital strategy for _everythingthe.com
 
 At the end of the 2026 financial year, Hazel Dooney formally concluded her career as an artist and essayist and finalised all business operations in alignment with Australian Taxation Office requirements.
 
+...
 
 Footnotes:
 
