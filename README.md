@@ -45,6 +45,8 @@ Footnotes:
 
 [8] Christie’s London Live Auction 7482, _Modern and Contemporary Australian Art Including Works by New Zealand and South African Artists_, closed 12 December 2007. _Sports Babe (Tennis)_, signed and dated 'DOONEY 2000' (lower left), enamel on board, unframed, 39½ x 59in. (100.3 x 149.8cm.), price realised 10,000 GBP (23,000 AUD approx.): https://www.christies.com/en/lot/lot-5007638 
 
+[https://www.christies.com/en/lot/lot-5007638](https://www.christies.com/en/lot/lot-5007638)
+
 [9] Christie’s London Live Auction 7482, _Modern and Contemporary Australian Art Including Works by New Zealand and South African Artists_, closed 12 December 2007. _Sports Babe (Cricket)_, signed and dated 'DOONEY 2005' (lower left), acrylic with high gloss enamel and reflective vinyl on board, unframed, 39½ x 59in. (100.3 x 149.8cm.), price realised 10,000 GBP (23,000 AUD approx): https://www.christies.com/en/lot/lot-5007639
 
 [10] Christie’s London Live Auction 7653, _Modern and Contemporary Australian and South African Art_, closed 16 December 2008. _Dangerous Career Babe: The Aviatrix_, signed 'DOONEY 2008' (lower left), high gloss enamel on custom-made board, 63 x 82 5/8in. (160 x 209.5cm.), price realised 14,375 GBP (32,200 AUD approx.): https://www.christies.com/en/lot/lot-5167286
