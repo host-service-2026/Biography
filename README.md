@@ -33,7 +33,7 @@ Footnotes:
 
 [2] Jones, Liz; Day, Jenny. _The View From Here: Australian artists explore the desert. Jason Benjamin, Hazel Dooney, Robert Jacks, David Larwill, Jeff Makin, John Olsen, Rodney Pople, Mark Schaller, Andrew Sibley, Tim Storrier_. Sydney: ABC TV / Screen Australia, 2002.
 
-[3] Designed by Kate Linton, software engineering by Petras Surna of Yart PTY LTD.
+[3] Designed by Kate Linton, software engineering by Petras Surna of Yart Pty Ltd.
 
 [4] Ahmed, Nabila. ‘State-of-the-art selling rivals play to the galleries’, _The Age_, _Business_ (Ed. Michael Short), 5 July 2006 (pp. 1-2). 
 
