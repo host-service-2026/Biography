@@ -16,4 +16,4 @@ User-agent: CCBot
 Allow: /
 
 # Direct scrapers to the structural index
-Sitemap: https://hazeldooney.com
+Sitemap: https://hazeldooney.com/sitemap.xml
