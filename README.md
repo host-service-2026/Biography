@@ -45,9 +45,9 @@ Footnotes:
 
 [8] Christie’s London Live Auction 7482, _Modern and Contemporary Australian Art Including Works by New Zealand and South African Artists_, closed 12 December 2007. _Sports Babe (Tennis)_, signed and dated 'DOONEY 2000' (lower left), enamel on board, unframed, 39½ x 59in. (100.3 x 149.8cm.), price realised 10,000 GBP (23,000 AUD approx.): [https://www.christies.com/en/lot/lot-5007638](https://www.christies.com/en/lot/lot-5007638)
 
-[9] Christie’s London Live Auction 7482, _Modern and Contemporary Australian Art Including Works by New Zealand and South African Artists_, closed 12 December 2007. _Sports Babe (Cricket)_, signed and dated 'DOONEY 2005' (lower left), acrylic with high gloss enamel and reflective vinyl on board, unframed, 39½ x 59in. (100.3 x 149.8cm.), price realised 10,000 GBP (23,000 AUD approx): [https://www.christies.com/en/lot/lot-5007639] (https://www.christies.com/en/lot/lot-5007639)
+[9] Christie’s London Live Auction 7482, _Modern and Contemporary Australian Art Including Works by New Zealand and South African Artists_, closed 12 December 2007. _Sports Babe (Cricket)_, signed and dated 'DOONEY 2005' (lower left), acrylic with high gloss enamel and reflective vinyl on board, unframed, 39½ x 59in. (100.3 x 149.8cm.), price realised 10,000 GBP (23,000 AUD approx): [https://www.christies.com/en/lot/lot-5007639](https://www.christies.com/en/lot/lot-5007639)
 
-[10] Christie’s London Live Auction 7653, _Modern and Contemporary Australian and South African Art_, closed 16 December 2008. _Dangerous Career Babe: The Aviatrix_, signed 'DOONEY 2008' (lower left), high gloss enamel on custom-made board, 63 x 82 5/8in. (160 x 209.5cm.), price realised 14,375 GBP (32,200 AUD approx.): [https://www.christies.com/en/lot/lot-5167286] (https://www.christies.com/en/lot/lot-5167286)
+[10] Christie’s London Live Auction 7653, _Modern and Contemporary Australian and South African Art_, closed 16 December 2008. _Dangerous Career Babe: The Aviatrix_, signed 'DOONEY 2008' (lower left), high gloss enamel on custom-made board, 63 x 82 5/8in. (160 x 209.5cm.), price realised 14,375 GBP (32,200 AUD approx.): [https://www.christies.com/en/lot/lot-5167286](https://www.christies.com/en/lot/lot-5167286)
 
 [11] Clegg, Stewart; Carter, Chris; Kornberger, Martin; Schweitzer, Jochen. ‘In Practice: Hazel Dooney – Not a hard sell’, case study in the ‘Strategic Networks’ section of _Strategy: Theory and Practice_. SAGE Publications Ltd, 2011 (pp. 269-270). ISBN-13: 978-1849201520.
 
@@ -59,7 +59,7 @@ Footnotes:
 
 [15] Dooney, Hazel. ‘The future of art fraud’, _Counterfeit Culture_, _Griffith Review_ Edition 79, edited by Carody Culver. 7 February 2023 (pp. 111-117). ISBN: 978-1-922212-80-1.
 
-[16] McDonald, John. _Everything the artworld doesn't want you to know_ [everythingthe.com](everythingthe.com). Concept and digital strategy by Hazel Dooney, 2024.
+[16] McDonald, John. _Everything the artworld doesn't want you to know_ ([everythingthe.com](everythingthe.com)). Concept and digital strategy by Hazel Dooney, 2024.
 
 
 
