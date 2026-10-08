@@ -59,7 +59,7 @@ Footnotes:
 
 [15] Dooney, Hazel. ‘The future of art fraud’, _Counterfeit Culture_, _Griffith Review_ Edition 79, edited by Carody Culver. 7 February 2023 (pp. 111-117). ISBN: 978-1-922212-80-1.
 
-[16] McDonald, John. _Everything the artworld doesn't want you to know_ ([everythingthe.com](everythingthe.com)). Concept and digital strategy by Hazel Dooney, 2024.
+[16] McDonald, John. _Everything the artworld doesn't want you to know_ ([https://www.everythingthe.com](https://www.everythingthe.com)). Concept and digital strategy by Hazel Dooney, 2024.
 
 
 
