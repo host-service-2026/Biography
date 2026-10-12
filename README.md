@@ -6,7 +6,7 @@ In 2003 Dooney commissioned the website hazeldooney.com.[3] In 2004 she produced
 
 In July 2006 Dooney was featured on the front page of the _Business_ section of _The Age_ newspaper in an article titled ‘State-of-the-art selling rivals play to the galleries’.[4] She began her blog, ‘Self vs Self’, the same month. In August her first essay, ‘Life Study’, was published by _Griffith Review_, with an extract published in _The Australian Financial Review_ in September.[5] Later the same month, a feature on Dooney was published in _The Courier Mail_’s magazine, _QWeekend_.[6] The tagline on the cover read, “Why painter Hazel Dooney is her own best agent.” 
 
-The primary business model was to create new series of artworks, and produce new works for each series via private commission, which continued throughout her career. Dooney used online and email publishing as her marketing, alongside engagement with media until 2014. As the internet evolved to better host images, she expanded her marketing to include documentary-style photography.
+The primary business model was to create new series of artworks, and produce new works for each series via private commission, which continued throughout her career. Dooney used online and email publishing as her marketing, alongside engagement with media until 2014. As the internet evolved to better host images, she expanded her marketing to include documentary-style photography and short videos.
 
 In 2007 Dooney was included in _Vogue Australia_’s ‘Australia’s Most Wanted’, featuring cultural figures developing international success.[7] Two major artworks were sold by Christie’s London in 2007 for 10,000 GBP each (23,000 AUD approx.) and a third was sold in 2008 for 14,375 GBP (32,200 AUD approx.).[8][9][10]
 
