@@ -37,7 +37,7 @@ Footnotes:
 
 [4] Ahmed, Nabila. ‘State-of-the-art selling rivals play to the galleries’, _The Age_, _Business_ (Ed. Michael Short), 5 July 2006 (pp. 1-2). 
 
-[5] 2006 Dooney, Hazel. ‘Life Study’, _The Next Big Thing_, _Griffith REVIEW_ Edition 13, 13 August 2006 (pp. 275-283). ISBN: 9780733319389. Extract retitled 'In front is a precipice, behind are wolves: Hazel Dooney walks the razor's edge between respect and celebrity in today's art world', published in _The Australian Financial Review_, 15 September (pp. 6-7).
+[5] 2006 Dooney, Hazel. ‘Life Study’, _The Next Big Thing_, _Griffith REVIEW_ Edition 13, edited by Julianne Schultz, 13 August 2006 (pp. 275-283). ISBN: 9780733319389. Extract retitled 'In front is a precipice, behind are wolves: Hazel Dooney walks the razor's edge between respect and celebrity in today's art world', published in _The Australian Financial Review_, 15 September (pp. 6-7).
 
 [6] Condon, Matthew. ‘Self portrait’, _QWeekend_, _The Courier Mail_, 23 - 24 September 2006 (pp. 24-27)
 
