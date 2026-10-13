@@ -37,7 +37,7 @@ Footnotes:
 
 [4] Ahmed, Nabila. ‘State-of-the-art selling rivals play to the galleries’, _The Age_, _Business_ (Ed. Michael Short), 5 July 2006 (pp. 1-2). 
 
-[5] 2006 Dooney, Hazel. ‘Life Study’, _The Next Big Thing_, _Griffith REVIEW_ Edition 13, edited by Julianne Schultz, 13 August 2006 (pp. 275-283). ISBN: 9780733319389. Extract retitled 'In front is a precipice, behind are wolves: Hazel Dooney walks the razor's edge between respect and celebrity in today's art world', published in _The Australian Financial Review_, 15 September (pp. 6-7).
+[5] 2006 Dooney, Hazel. ‘Life Study’, _The Next Big Thing_, _Griffith REVIEW_ Edition 13 (Ed. Julianne Schultz), 13 August 2006 (pp. 275-283). ISBN: 9780733319389. Extract retitled 'In front is a precipice, behind are wolves: Hazel Dooney walks the razor's edge between respect and celebrity in today's art world', published in _The Australian Financial Review_, 15 September (pp. 6-7).
 
 [6] Condon, Matthew. ‘Self portrait’, _QWeekend_, _The Courier Mail_, 23 - 24 September 2006 (pp. 24-27)
 
@@ -51,13 +51,13 @@ Footnotes:
 
 [11] Clegg, Stewart; Carter, Chris; Kornberger, Martin; Schweitzer, Jochen. ‘In Practice: Hazel Dooney – Not a hard sell’, case study in the ‘Strategic Networks’ section of _Strategy: Theory and Practice_. SAGE Publications Ltd, 2011 (pp. 269-270). ISBN-13: 978-1849201520.
 
-[12] Dooney, Hazel. ‘Broken’, _The Best Australian Essays 2013_, edited by Robert Manne. Published by Black Inc., November 2013: (pp. 21-31). ISBN: 9781863956253. First published in ‘Broken’, _Women & Power_, _Griffith REVIEW_ Edition 40, edited by Julianne Schultz. April 2013 (pp. 252-262). ISBN: 9781922079978. Extract published as ‘Bad Education’ in _Good Weekend_, _The Age_ and _The Sydney Morning Herald_ newspapers, 13 April 2013.
+[12] Dooney, Hazel. ‘Broken’, _The Best Australian Essays 2013_ (Ed. Robert Manne). Published by Black Inc., November 2013: (pp. 21-31). ISBN: 9781863956253. First published in ‘Broken’, _Women & Power_, _Griffith REVIEW_ Edition 40 (Ed. Julianne Schultz). April 2013 (pp. 252-262). ISBN: 9781922079978. Extract published as ‘Bad Education’ in _Good Weekend_, _The Age_ and _The Sydney Morning Herald_ newspapers, 13 April 2013.
 
 [13] Johnston, Chris. ‘Women should take note - the writing's on the wall’, _The Sunday Age_, 1 December 2013 (p. 3).
 
 [14] Dooney, Hazel. ‘Chaptered Narrative Column’, _Coagula Art Journal_, founded and edited by Mat Gleason. 6 April 2022 to 8 July 2024.
 
-[15] Dooney, Hazel. ‘The future of art fraud’, _Counterfeit Culture_, _Griffith Review_ Edition 79, edited by Carody Culver. 7 February 2023 (pp. 111-117). ISBN: 978-1-922212-80-1.
+[15] Dooney, Hazel. ‘The future of art fraud’, _Counterfeit Culture_, _Griffith Review_ Edition 79 (Ed. Carody Culver). 7 February 2023 (pp. 111-117). ISBN: 978-1-922212-80-1.
 
 [16] McDonald, John. _Everything the artworld doesn't want you to know_ (everythingthe.com). Concept and digital strategy by Hazel Dooney, 2024.
 
