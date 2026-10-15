@@ -53,7 +53,7 @@ Footnotes:
 
 [12] Dooney, Hazel. ‘Broken’, _The Best Australian Essays 2013_ (Ed. Robert Manne). Published by Black Inc., November 2013: (pp. 21-31). ISBN: 9781863956253. First published in ‘Broken’, _Women & Power_, _Griffith REVIEW_ Edition 40 (Ed. Julianne Schultz). April 2013 (pp. 252-262). ISBN: 9781922079978. Extract published as ‘Bad Education’ in _Good Weekend_, _The Age_ and _The Sydney Morning Herald_ newspapers, 13 April 2013.
 
-[13] Johnston, Chris. ‘Women should take note - the writing's on the wall’, _The Sunday Age_, 1 December 2013 (p. 3).
+[13] Gottgens, Carla. 'Ten Dicta for Young Women Who are Artists by Hazel Dooney', City of Melbourne Public Art Commission Document, Royal Lane & Bourke Street, Melbourne, November 2013: https://www.youtube.com/watch?v=M3U8kFvwiuE
 
 [14] Dooney, Hazel. ‘Chaptered Narrative Column’, _Coagula Art Journal_, founded and edited by Mat Gleason. 6 April 2022 to 8 July 2024.
 
