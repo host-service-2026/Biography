@@ -14,7 +14,7 @@ In 2011 Dooney was included as a case study in the ‘Strategic Networks’ chap
 
 Her essay ‘Broken’ was published in 2013 by _Griffith Review_ and included in _The Best Australian Essays 2013_, edited by Robert Manne.[12] The same year, after reading her blog, Lord Mayor Robert Doyle invited Dooney to create a public artwork for The City of Melbourne. The 15 metre text based mural was located on Royal Lane, off Bourke Street in Melbourne’s CBD, and remained beyond the initial agreement to 2019.[13]
 
-From 2014 Dooney restructured to reduce her public profile, moving away from marketing via interviews to avoid media sensationalism. Instead, she expanded her own writing and direct-to-audience communications to increase asset scarcity and further tailor private stakeholder communications.
+From 2014 Dooney restructured to reduce her public profile, moving away from marketing via interviews to avoid media inaccuracies and sensationalism. Instead, she expanded her own writing and direct-to-audience communications to increase asset scarcity and further tailor private stakeholder communications.
 
 From 2018 to 2021 Dooney worked on an international private portrait commission and until late 2022 developed new work under the patronage of entrepreneur, investor and corporate advisor Mark Carnegie. 
 
@@ -59,7 +59,7 @@ Footnotes:
 
 [15] Dooney, Hazel. ‘The future of art fraud’, _Counterfeit Culture_, _Griffith Review_ Edition 79 (Ed. Carody Culver). 7 February 2023 (pp. 111-117). ISBN: 978-1-922212-80-1.
 
-[16] McDonald, John. _Everything the artworld doesn't want you to know_ (everythingthe.com). Concept and digital strategy by Hazel Dooney, 2024.
+[16] McDonald, John. _Everything the artworld doesn't want you to know_. Concept and digital strategy by Hazel Dooney, 2024: https://www.everythingthe.com
 
 
 
