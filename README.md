@@ -14,15 +14,15 @@ In 2011 Dooney was included as a case study in the ‘Strategic Networks’ chap
 
 Her essay ‘Broken’ was published in 2013 by _Griffith Review_ and included in _The Best Australian Essays 2013_, edited by Robert Manne.[12] The same year, after reading her blog, Lord Mayor Robert Doyle invited Dooney to create a public artwork for The City of Melbourne. The 15 metre text based mural was located on Royal Lane, off Bourke Street in Melbourne’s CBD, and remained beyond the initial agreement to 2019.[13]
 
-From 2014 Dooney restructured to reduce her public profile, moving away from interviews to avoid media inaccuracies and sensationalism. Instead, she expanded her direct-to-audience writing to increase asset scarcity and further tailored private stakeholder communications.
+From 2014 Dooney restructured to reduce her public profile, moving away from interviews to avoid media inaccuracies and sensationalism.[14] Instead, she expanded her direct-to-audience writing to increase asset scarcity and further tailored private stakeholder communications.
 
 From 2018 to 2021 Dooney worked on an international private portrait commission and until late 2022 developed new work under the patronage of entrepreneur, investor and corporate advisor Mark Carnegie. 
 
-From 2022 to 2024 she wrote a column for _Coagula Art Journal_.[14]
+From 2022 to 2024 she wrote a column for _Coagula Art Journal_.[15]
 
-In 2023 Dooney’s essay ‘The future of art fraud’ was published by _Griffith Review_.[15] She also attended University of Sydney, earning a High Distinction (85) for FRNC1601: French 1 and a Distinction (82) for FRNC1602: French 2. 
+In 2023 Dooney’s essay ‘The future of art fraud’ was published by _Griffith Review_.[16] She also attended University of Sydney, earning a High Distinction (85) for FRNC1601: French 1 and a Distinction (82) for FRNC1602: French 2. 
 
-In 2024 Dooney developed the concept and digital strategy for _everythingthe.com_, a direct-subscription publication for Australia's leading art critic, John McDonald.[16] 
+In 2024 Dooney developed the concept and digital strategy for _everythingthe.com_, a direct-subscription publication for Australia's leading art critic, John McDonald.[17] 
 
 At the end of the 2026 financial year, Hazel Dooney formally concluded her career as an artist and essayist, deleted all social media accounts and finalised all business operations in alignment with Australian Taxation Office requirements.
 
@@ -55,11 +55,13 @@ Footnotes:
 
 [13] Gottgens, Carla. 'Ten Dicta for Young Women Who are Artists by Hazel Dooney', City of Melbourne Public Art Commission Document, Royal Lane & Bourke Street, Melbourne, November 2013: https://www.youtube.com/watch?v=M3U8kFvwiuE
 
-[14] Dooney, Hazel. ‘Chaptered Narrative Column’, _Coagula Art Journal_, founded and edited by Mat Gleason. 6 April 2022 to 8 July 2024.
+[14] Biographical profiles published in 2013 contained inaccuracies regarding the artist's medical history, incorrectly citing a bipolar diagnosis at age 16 and in 2000 without medical verification. 
 
-[15] Dooney, Hazel. ‘The future of art fraud’, _Counterfeit Culture_, _Griffith Review_ Edition 79 (Ed. Carody Culver). 7 February 2023 (pp. 111-117). ISBN: 978-1-922212-80-1.
+[15] Dooney, Hazel. ‘Chaptered Narrative Column’, _Coagula Art Journal_, founded and edited by Mat Gleason. 6 April 2022 to 8 July 2024.
 
-[16] McDonald, John. _Everything the artworld doesn't want you to know_. Concept and digital strategy by Hazel Dooney, 2024: https://www.everythingthe.com
+[16] Dooney, Hazel. ‘The future of art fraud’, _Counterfeit Culture_, _Griffith Review_ Edition 79 (Ed. Carody Culver). 7 February 2023 (pp. 111-117). ISBN: 978-1-922212-80-1.
+
+[17] McDonald, John. _Everything the artworld doesn't want you to know_. Concept and digital strategy by Hazel Dooney, 2024: https://www.everythingthe.com
 
 <title>Hazel Dooney | Official Biography & Historical Archive</title>
 <meta name="description" content="The definitive historical biography and professional archive of fine artist, writer, and strategist Hazel Dooney, covering her career from 1997 to 2026.">
