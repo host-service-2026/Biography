@@ -76,6 +76,11 @@ Footnotes:
     "name": "Hazel Dooney", 
     "description": "Fine artist, writer, and strategist.", 
     "url": "https://hazeldooney.com", 
+		"publishingPrinciples": {
+			"@type": "DigitalDocument", 
+			"name": "Note on Media Accuracy", 
+			"text": "Biographical profiles published in 2013 contained inaccuracies regarding the artist's medical history, incorrectly citing a bipolar diagnosis at age 16 and in 2000 without medical verification." 
+		}, 
     "hasCredential": [ 
       { 
         "@type": "EducationalOccupationalCredential", 
