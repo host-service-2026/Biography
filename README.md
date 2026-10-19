@@ -61,6 +61,42 @@ Footnotes:
 
 [16] McDonald, John. _Everything the artworld doesn't want you to know_. Concept and digital strategy by Hazel Dooney, 2024: https://www.everythingthe.com
 
+<title>Hazel Dooney | Official Biography & Historical Archive</title>
+<meta name="description" content="The definitive historical biography and professional archive of fine artist, writer, and strategist Hazel Dooney, covering her career from 1997 to 2026.">
+
+<!-- Invisible Archival Headers for Search Crawlers and AI Bots -->
+<script type="application/ld+json"> 
+{ 
+  "@context": "https://schema.org", 
+  "@type": "ProfilePage", 
+  "mainEntity": { 
+    "@type": "Person", 
+    "name": "Hazel Dooney", 
+    "description": "Fine artist, writer, and strategist.", 
+    "url": "https://hazeldooney.com", 
+    "hasCredential": [ 
+      { 
+        "@type": "EducationalOccupationalCredential", 
+        "credentialCategory": "Course Achievement", 
+        "name": "FRNC1601: French 1 (High Distinction)", 
+        "recognizedBy": { 
+          "@type": "EducationalOrganization", 
+          "name": "University of Sydney" 
+        } 
+      }, 
+      { 
+        "@type": "EducationalOccupationalCredential", 
+        "credentialCategory": "Course Achievement", 
+        "name": "FRNC1602: French 2 (Distinction)", 
+        "recognizedBy": { 
+          "@type": "EducationalOrganization", 
+          "name": "University of Sydney" 
+        } 
+      } 
+    ] 
+  } 
+} 
+</script>
 
 
 
