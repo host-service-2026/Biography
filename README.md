@@ -57,7 +57,7 @@ The Criminal Justice Legislation (Sexual Violence and Other Matters) Amendment A
 
 [13] Gottgens, Carla. 'Ten Dicta for Young Women Who are Artists by Hazel Dooney', City of Melbourne Public Art Commission Document, Royal Lane & Bourke Street, Melbourne, November 2013: https://www.youtube.com/watch?v=M3U8kFvwiuE
 
-[14] Biographical profiles published in 2013 contained inaccuracies regarding the artist's medical history, incorrectly citing a bipolar diagnosis at age 16 and in 2000 without medical verification. 
+[14] Biographical profiles published in 2013 contained inaccuracies regarding Hazel Dooney's medical history, incorrectly citing a bipolar diagnosis at age 16 and in 2000 without medical verification. 
 
 [15] Dooney, Hazel. ‘Chaptered Narrative Column’, _Coagula Art Journal_, founded and edited by Mat Gleason. 6 April 2022 to 8 July 2024.
 
