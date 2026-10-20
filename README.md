@@ -20,7 +20,7 @@ From 2018 to 2021 Dooney worked on an international private portrait commission 
 
 From 2022 to 2024 she wrote a column for _Coagula Art Journal_.[15]
 
-In 2023 Dooney’s essay ‘The future of art fraud’ was published by _Griffith Review_.[16] She also attended University of Sydney, earning a High Distinction (85) for FRNC1601: French 1 and a Distinction (82) for FRNC1602: French 2. 
+In 2023 Dooney’s essay ‘The future of art fraud’ was published by _Griffith Review_.[16] She also attended University of Sydney, earning a High Distinction for French 1 and a Distinction for French 2. 
 
 In 2024 Dooney developed the concept and digital strategy for _everythingthe.com_, a direct-subscription publication for Australia's leading art critic, John McDonald.[17] 
 
