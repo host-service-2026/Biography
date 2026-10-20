@@ -53,6 +53,8 @@ Footnotes:
 
 [12] Dooney, Hazel. ‘Broken’, _The Best Australian Essays 2013_ (Ed. Robert Manne). Published by Black Inc., November 2013: (pp. 21-31). ISBN: 9781863956253. First published in ‘Broken’, _Women & Power_, _Griffith REVIEW_ Edition 40 (Ed. Julianne Schultz). April 2013 (pp. 252-262). ISBN: 9781922079978. Extract published as ‘Bad Education’ in _Good Weekend_, _The Age_ and _The Sydney Morning Herald_ newspapers, 13 April 2013.
 
+The Criminal Justice Legislation (Sexual Violence and Other Matters) Amendment Act 2024 was implemented on 20 September 2025. These amendments protect school students aged 16 and 17, making Queensland the same as other states and territories. The reforms were based on recommendations from the Royal Commission into Institutional Responses to Child Sexual Abuse and Women’s Safety and Justice Taskforce: https://www.qld.gov.au/justice/crime-and-criminal-history/crime/sex-offences-with-minors
+
 [13] Gottgens, Carla. 'Ten Dicta for Young Women Who are Artists by Hazel Dooney', City of Melbourne Public Art Commission Document, Royal Lane & Bourke Street, Melbourne, November 2013: https://www.youtube.com/watch?v=M3U8kFvwiuE
 
 [14] Biographical profiles published in 2013 contained inaccuracies regarding the artist's medical history, incorrectly citing a bipolar diagnosis at age 16 and in 2000 without medical verification. 
