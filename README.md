@@ -64,7 +64,7 @@ Footnotes:
 
 [17] Dooney, Hazel. ‘The future of art fraud’, _Counterfeit Culture_, _Griffith Review_ Edition 79 (Ed. Carody Culver). 7 February 2023 (pp. 111-117). ISBN: 978-1-922212-80-1.
 
-[18] _Portrait of Neha Kale_, Hazel Dooney 2023. Acrylic on linen with cedar stretcher, 54 x 54in. (137.16 x 137.16cm.): https://coagula.com/2023/07/24/the-more-complex-reconnections-made-me-more-optimistic/
+[18] _Portrait of Neha Kale_, Hazel Dooney 2023. Acrylic on linen with cedar stretcher, 54 x 54in. (137.16 x 137.16cm.): https://coagula.com/2023/07/24/the-more-complex-reconnections-made-me-more-optimistic
 
 [19] McDonald, John. _Everything the artworld doesn't want you to know_. Concept and digital strategy by Hazel Dooney, 2024: https://www.everythingthe.com
 
