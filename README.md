@@ -22,7 +22,7 @@ From 2018 to 2021 Dooney worked on an international private portrait commission 
 
 From 2022 to 2024 she wrote a column for _Coagula Art Journal_.[16]
 
-In 2023 Dooney’s essay ‘The future of art fraud’ was published by _Griffith Review_ and she completed a major portait of art critic Neha Kale.[17][18] She also attended University of Sydney, earning a High Distinction for French 1 and a Distinction for French 2. 
+In 2023 Dooney’s essay ‘The future of art fraud’ was published by _Griffith Review_ and she completed a major portrait of writer and art critic Neha Kale.[17][18] She also attended University of Sydney, earning a High Distinction for French 1 and a Distinction for French 2. 
 
 In 2024 Dooney continued working on major private portrait commissions and developed the concept and digital strategy for _everythingthe.com_, a direct-subscription publication for Australia's leading art critic, John McDonald.[19] 
 
