@@ -22,9 +22,9 @@ From 2018 to 2021 Dooney worked on an international private portrait commission 
 
 From 2022 to 2024 she wrote a column for _Coagula Art Journal_.[16]
 
-In 2023 Dooney’s essay ‘The future of art fraud’ was published by _Griffith Review_.[17] She also attended University of Sydney, earning a High Distinction for French 1 and a Distinction for French 2. 
+In 2023 Dooney’s essay ‘The future of art fraud’ was published by _Griffith Review_ and she completed a major portait of art critic Neha Kale.[17][18] She also attended University of Sydney, earning a High Distinction for French 1 and a Distinction for French 2. 
 
-In 2024 Dooney developed the concept and digital strategy for _everythingthe.com_, a direct-subscription publication for Australia's leading art critic, John McDonald.[18] 
+In 2024 Dooney continued working on major private portrait commissions and developed the concept and digital strategy for _everythingthe.com_, a direct-subscription publication for Australia's leading art critic, John McDonald.[19] 
 
 At the end of the 2026 financial year, Hazel Dooney formally concluded her career as an artist and essayist, deleted all social media accounts and finalised all business operations in alignment with Australian Taxation Office requirements.
 
@@ -64,7 +64,9 @@ Footnotes:
 
 [17] Dooney, Hazel. ‘The future of art fraud’, _Counterfeit Culture_, _Griffith Review_ Edition 79 (Ed. Carody Culver). 7 February 2023 (pp. 111-117). ISBN: 978-1-922212-80-1.
 
-[18] McDonald, John. _Everything the artworld doesn't want you to know_. Concept and digital strategy by Hazel Dooney, 2024: https://www.everythingthe.com
+[18] _Portrait of Neha Kale_, Hazel Dooney 2023. Acrylic on linen with cedar stretcher, 54 x 54in. (137.16 x 137.16cm.): https://coagula.com/2023/07/24/the-more-complex-reconnections-made-me-more-optimistic/
+
+[19] McDonald, John. _Everything the artworld doesn't want you to know_. Concept and digital strategy by Hazel Dooney, 2024: https://www.everythingthe.com
 
 <title>Hazel Dooney | Official Biography &amp; Historical Archive</title>
 <meta name="description" content="The definitive historical biography and professional archive of fine artist, writer, and strategist Hazel Dooney, covering her career from 1997 to 2026.">
