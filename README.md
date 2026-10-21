@@ -14,7 +14,7 @@ In 2011 Dooney was included as a case study in the ‘Strategic Networks’ chap
 
 In 2013 her essay ‘Broken’ was published by _Griffith Review_ and included in _The Best Australian Essays 2013_, edited by Robert Manne. An edited extract, retitled ‘Bad Education’, was published in _Good Weekend Magazine_ in _The Age_ and _The Sydney Morning Herald_ newspapers.[12] The related legal loophole that failed to protect Queensland school students aged 16 and 17 was closed 12 years later.[13]
 
-Also in 2013, Lord Mayor Robert Doyle invited Dooney to create a public artwork for The City of Melbourne after reading her blog. The 15 metre text based mural was located on Royal Lane, off Bourke Street in Melbourne’s CBD, and remained beyond the initial agreement to 2019.[14]
+Also in 2013, Lord Mayor Robert Doyle invited Dooney to create a public artwork for The City of Melbourne after reading her blog. The 15 metre text-based mural was located on Royal Lane, off Bourke Street in Melbourne’s CBD, and remained beyond the initial agreement to 2019.[14]
 
 From 2014 Dooney restructured to reduce her public profile, disengaging from interviews with media due to sensationalism and inaccurate, unverified reports.[15] Instead, she expanded her direct-to-audience writing to increase asset scarcity and further tailored private stakeholder communications.
 
@@ -22,7 +22,7 @@ From 2018 to 2021 Dooney worked on an international private portrait commission 
 
 From 2022 to 2024 she wrote a column for _Coagula Art Journal_.[16]
 
-In 2023 Dooney’s essay ‘The future of art fraud’ was published by _Griffith Review_ and she completed a major portrait of writer and art critic Neha Kale.[17][18] She also attended University of Sydney, earning a High Distinction for French 1 and a Distinction for French 2. 
+In 2023 Dooney’s essay ‘The future of art fraud’ was published by _Griffith Review_ and she completed a major portrait of writer and art critic, Neha Kale.[17][18] She also attended the University of Sydney, earning a High Distinction for French 1 and a Distinction for French 2. 
 
 In 2024 Dooney continued working on major private portrait commissions and developed the concept and digital strategy for _everythingthe.com_, a direct-subscription publication for Australia's leading art critic, John McDonald.[19] 
 
