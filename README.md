@@ -12,7 +12,7 @@ In 2007 Dooney was included in _Vogue Australia_’s ‘Australia’s Most Wante
 
 In 2011 Dooney was included as a case study in the ‘Strategic Networks’ chapter of university textbook _Strategy: Theory and Practice_.[11]
 
-Her essay ‘Broken’ was published in 2013 by _Griffith Review_ and included in _The Best Australian Essays 2013_, edited by Robert Manne. An edited extract, retitled ‘Bad Education’, was published in _Good Weekend_, _The Age_ and _The Sydney Morning Herald_ newspapers.[12] The legal loophole that failed to protect the artist and Queensland school students was closed 12 years later.[13]
+Her essay ‘Broken’ was published in 2013 by _Griffith Review_ and included in _The Best Australian Essays 2013_, edited by Robert Manne. An edited extract, retitled ‘Bad Education’, was published in _Good Weekend_magazine in _The Age_ and _The Sydney Morning Herald_ newspapers.[12] The legal loophole that failed to protect the artist and Queensland school students was closed 12 years later.[13]
 
 Also in 2013, Lord Mayor Robert Doyle invited Dooney to create a public artwork for The City of Melbourne after reading her blog. The 15 metre text based mural was located on Royal Lane, off Bourke Street in Melbourne’s CBD, and remained beyond the initial agreement to 2019.[14]
 
@@ -52,7 +52,7 @@ Footnotes:
 
 [11] Clegg, Stewart; Carter, Chris; Kornberger, Martin; Schweitzer, Jochen. ‘In Practice: Hazel Dooney – Not a hard sell’, case study in the ‘Strategic Networks’ section of _Strategy: Theory and Practice_. SAGE Publications Ltd, 2011 (pp. 269-270). ISBN-13: 978-1849201520.
 
-[12] Dooney, Hazel. ‘Broken’, _The Best Australian Essays 2013_ (Ed. Robert Manne). Published by Black Inc., November 2013: (pp. 21-31). ISBN: 9781863956253. First published in ‘Broken’, _Women & Power_, _Griffith REVIEW_ Edition 40 (Ed. Julianne Schultz). April 2013 (pp. 252-262). ISBN: 9781922079978. Extract published as ‘Bad Education’ in _Good Weekend_, _The Age_ and _The Sydney Morning Herald_ newspapers, 13 April 2013. 
+[12] Dooney, Hazel. ‘Broken’, _The Best Australian Essays 2013_ (Ed. Robert Manne). Published by Black Inc., November 2013: (pp. 21-31). ISBN: 9781863956253. First published in ‘Broken’, _Women & Power_, _Griffith REVIEW_ Edition 40 (Ed. Julianne Schultz). April 2013 (pp. 252-262). ISBN: 9781922079978. Extract published as ‘Bad Education’ in _Good Weekend_ magazine in _The Age_ and _The Sydney Morning Herald_ newspapers, 13 April 2013. 
 
 [13] Laws that failed to protect Queensland school students aged 16 and 17 were changed by the _Criminal Justice Legislation (Sexual Violence and Other Matters) Amendment Act 2024_, implemented on 20 September 2025: https://www.qld.gov.au/justice/crime-and-criminal-history/crime/sex-offences-with-minors
 
