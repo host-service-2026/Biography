@@ -12,7 +12,7 @@ In 2007 Dooney was included in _Vogue Australia_’s ‘Australia’s Most Wante
 
 In 2011 Dooney was included as a case study in the ‘Strategic Networks’ chapter of university textbook _Strategy: Theory and Practice_.[11]
 
-Her essay ‘Broken’ was published in 2013 by _Griffith Review_ and included in _The Best Australian Essays 2013_, edited by Robert Manne.[12] A legal loophole that failerd to protect Queensland school students was closed 12 years later.[13]
+Her essay ‘Broken’ was published in 2013 by _Griffith Review_ and included in _The Best Australian Essays 2013_, edited by Robert Manne.[12] A legal loophole that failed to protect Queensland school students was closed 12 years later.[13]
 
 Also in 2013, Lord Mayor Robert Doyle invited Dooney to create a public artwork for The City of Melbourne after reading her blog. The 15 metre text based mural was located on Royal Lane, off Bourke Street in Melbourne’s CBD, and remained beyond the initial agreement to 2019.[14]
 
@@ -56,7 +56,7 @@ Footnotes:
 
 [13] Laws that failed to protect Queensland school students aged 16 and 17 were changed by the _Criminal Justice Legislation (Sexual Violence and Other Matters) Amendment Act 2024_, implemented on 20 September 2025: https://www.qld.gov.au/justice/crime-and-criminal-history/crime/sex-offences-with-minors
 
-[14] Gottgens, Carla. 'Ten Dicta for Young Women Who are Artists by Hazel Dooney', City of Melbourne Public Art Commission Document, Royal Lane & Bourke Street, Melbourne, November 2013: https://www.youtube.com/watch?v=M3U8kFvwiuE
+[14] Gottgens, Carla. 'Ten Dicta for Young Women Who are Artists by Hazel Dooney', City of Melbourne Public Art Commission, Royal Lane & Bourke Street, Melbourne, November 2013: https://www.youtube.com/watch?v=M3U8kFvwiuE
 
 [15] Biographical profiles published in 2013 contained inaccuracies regarding Hazel Dooney's medical history, incorrectly citing a bipolar diagnosis at age 16 and in 2000 without medical verification. 
 
