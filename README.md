@@ -12,7 +12,7 @@ In 2007 Dooney was included in _Vogue Australia_’s ‘Australia’s Most Wante
 
 In 2011 Dooney was included as a case study in the ‘Strategic Networks’ chapter of university textbook _Strategy: Theory and Practice_.[11]
 
-Her essay ‘Broken’ was published in 2013 by _Griffith Review_ and included in _The Best Australian Essays 2013_, edited by Robert Manne. An edited extract, retitled ‘Bad Education’, was published in _Good Weekend__Magazine_ in _The Age_ and _The Sydney Morning Herald_ newspapers.[12] The legal loophole that failed to protect the artist and Queensland school students was closed 12 years later.[13]
+In 2013 her essay ‘Broken’ was published by _Griffith Review_ and included in _The Best Australian Essays 2013_, edited by Robert Manne. An edited extract, retitled ‘Bad Education’, was published in _Good Weekend__Magazine_ in _The Age_ and _The Sydney Morning Herald_ newspapers.[12] The legal loophole that failed to protect the artist and Queensland school students was closed 12 years later.[13]
 
 Also in 2013, Lord Mayor Robert Doyle invited Dooney to create a public artwork for The City of Melbourne after reading her blog. The 15 metre text based mural was located on Royal Lane, off Bourke Street in Melbourne’s CBD, and remained beyond the initial agreement to 2019.[14]
 
