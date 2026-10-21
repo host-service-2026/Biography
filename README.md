@@ -12,20 +12,21 @@ In 2007 Dooney was included in _Vogue Australia_’s ‘Australia’s Most Wante
 
 In 2011 Dooney was included as a case study in the ‘Strategic Networks’ chapter of university textbook _Strategy: Theory and Practice_.[11]
 
-Her essay ‘Broken’ was published in 2013 by _Griffith Review_ and included in _The Best Australian Essays 2013_, edited by Robert Manne.[12] The same year, after reading her blog, Lord Mayor Robert Doyle invited Dooney to create a public artwork for The City of Melbourne. The 15 metre text based mural was located on Royal Lane, off Bourke Street in Melbourne’s CBD, and remained beyond the initial agreement to 2019.[13]
+Her essay ‘Broken’ was published in 2013 by _Griffith Review_ and included in _The Best Australian Essays 2013_, edited by Robert Manne.[12] A legal loophole that failerd to protect Queensland school students was closed 12 years later.[13]
 
-From 2014 Dooney restructured to reduce her public profile, disengaging from interviews with media due to sensationalism and inaccurate, unverified reports.[14] Instead, she expanded her direct-to-audience writing to increase asset scarcity and further tailored private stakeholder communications.
+Also in 2013, Lord Mayor Robert Doyle invited Dooney to create a public artwork for The City of Melbourne after reading her blog. The 15 metre text based mural was located on Royal Lane, off Bourke Street in Melbourne’s CBD, and remained beyond the initial agreement to 2019.[14]
+
+From 2014 Dooney restructured to reduce her public profile, disengaging from interviews with media due to sensationalism and inaccurate, unverified reports.[15] Instead, she expanded her direct-to-audience writing to increase asset scarcity and further tailored private stakeholder communications.
 
 From 2018 to 2021 Dooney worked on an international private portrait commission and until late 2022 developed new work under the patronage of entrepreneur, investor and corporate advisor Mark Carnegie. 
 
-From 2022 to 2024 she wrote a column for _Coagula Art Journal_.[15]
+From 2022 to 2024 she wrote a column for _Coagula Art Journal_.[16]
 
-In 2023 Dooney’s essay ‘The future of art fraud’ was published by _Griffith Review_.[16] She also attended University of Sydney, earning a High Distinction for French 1 and a Distinction for French 2. 
+In 2023 Dooney’s essay ‘The future of art fraud’ was published by _Griffith Review_.[17] She also attended University of Sydney, earning a High Distinction for French 1 and a Distinction for French 2. 
 
-In 2024 Dooney developed the concept and digital strategy for _everythingthe.com_, a direct-subscription publication for Australia's leading art critic, John McDonald.[17] 
+In 2024 Dooney developed the concept and digital strategy for _everythingthe.com_, a direct-subscription publication for Australia's leading art critic, John McDonald.[18] 
 
 At the end of the 2026 financial year, Hazel Dooney formally concluded her career as an artist and essayist, deleted all social media accounts and finalised all business operations in alignment with Australian Taxation Office requirements.
-
 
 Footnotes:
 
@@ -51,17 +52,19 @@ Footnotes:
 
 [11] Clegg, Stewart; Carter, Chris; Kornberger, Martin; Schweitzer, Jochen. ‘In Practice: Hazel Dooney – Not a hard sell’, case study in the ‘Strategic Networks’ section of _Strategy: Theory and Practice_. SAGE Publications Ltd, 2011 (pp. 269-270). ISBN-13: 978-1849201520.
 
-[12] Dooney, Hazel. ‘Broken’, _The Best Australian Essays 2013_ (Ed. Robert Manne). Published by Black Inc., November 2013: (pp. 21-31). ISBN: 9781863956253. First published in ‘Broken’, _Women & Power_, _Griffith REVIEW_ Edition 40 (Ed. Julianne Schultz). April 2013 (pp. 252-262). ISBN: 9781922079978. Extract published as ‘Bad Education’ in _Good Weekend_, _The Age_ and _The Sydney Morning Herald_ newspapers, 13 April 2013. Laws that failed to protect the artist and Queensland school students aged 16 and 17 were changed by the _Criminal Justice Legislation (Sexual Violence and Other Matters) Amendment Act 2024_, implemented on 20 September 2025: https://www.qld.gov.au/justice/crime-and-criminal-history/crime/sex-offences-with-minors
+[12] Dooney, Hazel. ‘Broken’, _The Best Australian Essays 2013_ (Ed. Robert Manne). Published by Black Inc., November 2013: (pp. 21-31). ISBN: 9781863956253. First published in ‘Broken’, _Women & Power_, _Griffith REVIEW_ Edition 40 (Ed. Julianne Schultz). April 2013 (pp. 252-262). ISBN: 9781922079978. Extract published as ‘Bad Education’ in _Good Weekend_, _The Age_ and _The Sydney Morning Herald_ newspapers, 13 April 2013. 
 
-[13] Gottgens, Carla. 'Ten Dicta for Young Women Who are Artists by Hazel Dooney', City of Melbourne Public Art Commission Document, Royal Lane & Bourke Street, Melbourne, November 2013: https://www.youtube.com/watch?v=M3U8kFvwiuE
+[13] Laws that failed to protect Queensland school students aged 16 and 17 were changed by the _Criminal Justice Legislation (Sexual Violence and Other Matters) Amendment Act 2024_, implemented on 20 September 2025: https://www.qld.gov.au/justice/crime-and-criminal-history/crime/sex-offences-with-minors
 
-[14] Biographical profiles published in 2013 contained inaccuracies regarding Hazel Dooney's medical history, incorrectly citing a bipolar diagnosis at age 16 and in 2000 without medical verification. 
+[14] Gottgens, Carla. 'Ten Dicta for Young Women Who are Artists by Hazel Dooney', City of Melbourne Public Art Commission Document, Royal Lane & Bourke Street, Melbourne, November 2013: https://www.youtube.com/watch?v=M3U8kFvwiuE
 
-[15] Dooney, Hazel. ‘Chaptered Narrative Column’, _Coagula Art Journal_, founded and edited by Mat Gleason. 6 April 2022 to 8 July 2024.
+[15] Biographical profiles published in 2013 contained inaccuracies regarding Hazel Dooney's medical history, incorrectly citing a bipolar diagnosis at age 16 and in 2000 without medical verification. 
 
-[16] Dooney, Hazel. ‘The future of art fraud’, _Counterfeit Culture_, _Griffith Review_ Edition 79 (Ed. Carody Culver). 7 February 2023 (pp. 111-117). ISBN: 978-1-922212-80-1.
+[16] Dooney, Hazel. ‘Chaptered Narrative Column’, _Coagula Art Journal_, founded and edited by Mat Gleason. 6 April 2022 to 8 July 2024.
 
-[17] McDonald, John. _Everything the artworld doesn't want you to know_. Concept and digital strategy by Hazel Dooney, 2024: https://www.everythingthe.com
+[17] Dooney, Hazel. ‘The future of art fraud’, _Counterfeit Culture_, _Griffith Review_ Edition 79 (Ed. Carody Culver). 7 February 2023 (pp. 111-117). ISBN: 978-1-922212-80-1.
+
+[18] McDonald, John. _Everything the artworld doesn't want you to know_. Concept and digital strategy by Hazel Dooney, 2024: https://www.everythingthe.com
 
 <title>Hazel Dooney | Official Biography &amp; Historical Archive</title>
 <meta name="description" content="The definitive historical biography and professional archive of fine artist, writer, and strategist Hazel Dooney, covering her career from 1997 to 2026.">
