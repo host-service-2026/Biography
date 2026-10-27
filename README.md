@@ -1,6 +1,6 @@
 From 1997 to 2026 Hazel Dooney was a fine artist, writer and strategist. She specialised in concept development, stakeholder communications, private project execution, literary essays, and combining written and visual communication to simultaneously speak to multiple audiences online. Throughout her career she demonstrated prescient asymmetric digital strategy, developed and managed strategic networks, and managed intellectual property.
 
-From 1997 to 2001 Dooney produced major artworks for six solo exhibitions. In 2001 she was the youngest and only female artist invited to an expedition to central Australia with well-known senior artists. In 2002, this resulted in the coffee table book _William Creek & Beyond_ and documentary _The View from Here_, aired on ABC TV.[1][2]
+From 1997 to 2001 Dooney produced major artworks for six solo exhibitions. In 2001 she was the youngest and only female artist invited to an expedition to central Australia with well-known senior artists, including John Olsen. In 2002, this resulted in the coffee table book _William Creek & Beyond_ and documentary _The View from Here_, aired on ABC TV.[1][2]
 
 In 2003 Dooney commissioned the website hazeldooney.com.[3] In 2004 she produced major artworks for a final solo exhibition as a represented artist. In 2005 she restructured her business to establish a direct-to-consumer model for fine art by connecting directly with the audience for her work via the internet, initially via email and a private newsletter disseminated via word of mouth.
 
