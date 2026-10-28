@@ -14,7 +14,7 @@ In 2011 Dooney was included as a case study in the ‘Strategic Networks’ chap
 
 In 2013 her essay ‘Broken’ was published by _Griffith Review_ and included in _The Best Australian Essays 2013_, edited by Robert Manne. An edited extract, retitled ‘Bad Education’, was published in _Good Weekend_ magazine in _The Age_ and _The Sydney Morning Herald_ newspapers.[12] The related legal loophole that failed to protect Queensland school students aged 16 and 17 was closed 12 years later.[13]
 
-Also in 2013, Lord Mayor Robert Doyle invited Dooney to create a public artwork for The City of Melbourne after reading her blog. The 15 metre text-based mural was located on Royal Lane, off Bourke Street in Melbourne’s CBD, and remained beyond the initial agreement to 2019.[14]
+Also in 2013, Lord Mayor Robert Doyle invited Dooney to create a public artwork for The City of Melbourne after reading her blog. The 15 metre text-based mural, _Ten Dicta for Young Women Who Are Artists_, was located on Royal Lane, off Bourke Street in Melbourne’s CBD, and remained beyond the initial agreement to 2019.[14]
 
 From 2014 Dooney restructured to reduce her public profile, disengaging from interviews with media due to sensationalism and inaccurate, unverified reports.[15] Instead, she expanded her direct-to-audience writing to increase asset scarcity and further tailored private stakeholder communications.
 
