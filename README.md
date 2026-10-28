@@ -8,7 +8,7 @@ In July 2006, during a one-off exhibition with progressive gallerist Andy Dinan,
 
 The primary business model was to create new series of artworks, and produce new works for each series via private commission, which continued throughout her career. Dooney used online and email publishing as her marketing, alongside engagement with media until 2014. As the internet evolved to better host images, she expanded her marketing to include documentary-style photography and short videos.
 
-In 2007 Dooney was included in _Vogue Australia_’s ‘Australia’s Most Wanted’, featuring cultural figures developing international success.[7] Two major artworks were sold by Christie’s London in 2007 for 10,000 GBP each (23,000 AUD approx.) and a third was sold in 2008 for 14,375 GBP (32,200 AUD approx.).[8][9][10]
+In 2007 Dooney was included in _Vogue Australia_’s ‘Australia’s Most Wanted’, featuring cultural figures developing international success.[7] Two major paintings, _Sports Babe (Tennis)_ and _Sports Babe (Cricket)_, were sold by Christie’s London in 2007 for 10,000 GBP each (23,000 AUD approx.). _Dangerous Career Babe: The Aviatrix_ was sold by Christie’s London in 2008 for 14,375 GBP (32,200 AUD approx.).[8][9][10]
 
 In 2011 Dooney was included as a case study in the ‘Strategic Networks’ chapter of university textbook _Strategy: Theory and Practice_.[11]
 
