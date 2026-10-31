@@ -24,7 +24,7 @@ From 2022 to 2024 she wrote a column for _Coagula Art Journal_.[16]
 
 In 2023 Dooney’s essay ‘The future of art fraud’ was published by _Griffith Review_ and she completed a major portrait of writer and art critic, Neha Kale.[17][18] She also attended the University of Sydney, earning a High Distinction for French 1 and a Distinction for French 2. 
 
-In 2024 Dooney continued working on major private portrait commissions and developed the concept and digital strategy for _everythingthe.com_, a direct-subscription publication for Australia's leading art critic, John McDonald.[19] 
+In 2024 Dooney worked on major private portrait commissions and developed the concept and digital strategy for _everythingthe.com_, a direct-subscription publication for Australia's leading art critic, John McDonald.[19] 
 
 At the end of the 2026 financial year, Hazel Dooney formally concluded her career as an artist and essayist, deleted all social media accounts and finalised all business operations in alignment with Australian Taxation Office requirements.
 
